@@ -1,3 +1,5 @@
+![portada](https://user-images.githubusercontent.com/113840807/218283385-208db2a5-6f7c-4ae8-8687-a3a949033d8e.jpg)
+
 ¡Hola! 👋
 
 Mi nombre es Florencia Braida, pero puedes llamarme Nicole. 
